@@ -2,7 +2,7 @@
 - I'm interested in playing World of Warcraft, Valorant and League of legends. If we talk about music, i just say "PowerWolf".
 - I’m currently learning Java, 3rd year student at the Faculty of Programming.
 - I’m looking to collaborate on ... Or not.
-- How to reach me: Dicord: bearlucius or Telegram: @BearLuciu
+- How to reach me: Dicord: bearlucius or Telegram: @BearLucius
 
 
 <!---
